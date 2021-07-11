@@ -1,0 +1,2 @@
+# embroidery-emb-dst-pes-xxx-hu
+Hi, I'm Makasum maulana, a professional embroidery digitizer who converts an Image into embroidery files such as DST, PES or any other. I can produce an embroidery design file without any fabric puckering. I'm the guy who has more than 15 years of experience in the field of embroidery design digitizing. I love what I do because embroidery digitizing is my passion and profession. so, get in touch with me if you have any question. thank you!
